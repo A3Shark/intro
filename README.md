@@ -13,9 +13,9 @@ Choosing A3 Shark means partnering with a team that is dedicated to your project
 
 # Our socials
 
-🔶Moti Bio | 
+🔶Moti Bio | https://www.moti.bio/A3Shark
 
-🔶Notion | 
+🔶Notion | https://abalone-double-452.notion.site/A3-Shark-70cb2fc57826417991989a54960bdb5c
 
 🔶Medium | https://medium.com/@A3Shark
 
